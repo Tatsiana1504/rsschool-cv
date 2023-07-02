@@ -10,5 +10,5 @@
  **Education:**
  Secondary 
  **Language**
- I have never studied English, but with rs school and such an opportunity for learning, I begin to learn it.
+ I have never studied English, but with rs school and such an opportunity for learning, I begin to learn it. 
 
